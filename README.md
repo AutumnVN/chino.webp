@@ -90,4 +90,10 @@ https://www.pixiv.net/en/users/5122975
 
 https://www.pixiv.net/en/users/2609622
 
+https://www.pixiv.net/en/users/16285999
+
+https://www.pixiv.net/en/users/366714
+
+https://www.pixiv.net/en/users/1055457
+
 ... and some twitter users.
